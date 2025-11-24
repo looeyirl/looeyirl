@@ -4,6 +4,9 @@
 
 ⌇dni's ― random people me OR my friends don't know, I wish not to be int with unknown people atm .     ◟
 
-
-
 ⌇ int's ― friend's of friends are ok to int, im mostly dniuid or friends , rarely i'll c*h with others.
+
+⌇ People i trust , and mostly/only int with 
+
+
+ 
