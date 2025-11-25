@@ -4,4 +4,8 @@
 ⁞ I c*h sometimes ⸝⸝⸝               . 
                       doubles dniuf , I dislike doubles.
 
+
+
+mostly around cuddling with friends or people I know . 
+
 <img width="735" height="147" alt="Untitled41_20251123234409" src="https://github.com/user-attachments/assets/ec964a37-4504-4dc6-b61e-35bdddc4a454" />
