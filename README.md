@@ -8,6 +8,8 @@
 
 ⁞  mostly around cuddling w friends near sth or dw area . 
 
-⁞i tend to forget to use tontags so if sm makes uncomfy and i didnt use a ct pls let me know :3
+⁞ i tend to forget to use tontags so if sm makes uncomfy and i didnt use a ct pls let me know :3
+
+⁞ i am so awkward around new people, just give me time and ill warm up quickly. 
 
 <img width="735" height="147" alt="Untitled41_20251123234409" src="https://github.com/user-attachments/assets/ec964a37-4504-4dc6-b61e-35bdddc4a454" />
