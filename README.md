@@ -12,4 +12,7 @@
 
 ⁞ i am so awkward around new people, just give me time and ill warm up quickly. 
 
+⁞ typing quirks / fonts dniuf, they lwk piss me off idk why :/
+
+
 <img width="735" height="147" alt="Untitled41_20251123234409" src="https://github.com/user-attachments/assets/ec964a37-4504-4dc6-b61e-35bdddc4a454" />
