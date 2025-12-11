@@ -6,7 +6,7 @@
 
 - i am hypersenitive and will easily get worried about small things/words.
 
-- i tend not to walk up to others, even friends. if i want to int just walk / sit next to me.
+- i tend not to walk up to others, even friends. if u want to int just walk / sit next to me.
 
 
 
