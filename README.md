@@ -4,6 +4,8 @@
 
 - I'll have c*h in my name when i want to be intracted with, if not w2i.
 
+- i am hypersenitive and will easily get worried about small things/words.
+
 
 
 <img width="1280" height="715" alt="IMG_0791" src="https://github.com/user-attachments/assets/56fa690b-9503-4bf5-bcae-940af48670da" />
