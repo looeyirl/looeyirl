@@ -9,11 +9,8 @@
 - i tend not to walk up to others, even friends. if u want to int just walk / sit next to me.
 
 
+<img width="736" height="377" alt="Untitled311_20251105182037" src="https://github.com/user-attachments/assets/518fc8ce-4a3a-4f2c-bbf1-44c72ca07c45" />
 
-<img width="1280" height="715" alt="IMG_0791" src="https://github.com/user-attachments/assets/56fa690b-9503-4bf5-bcae-940af48670da" />
-
-
-<img width="736" height="736" alt="Untitled71_20251206011045" src="https://github.com/user-attachments/assets/2f9a34ae-fdd1-4eb1-8a7b-681ce5b837ee" />
 
 
 
